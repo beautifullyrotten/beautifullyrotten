@@ -16,3 +16,5 @@ so this person up there its a copier they copy my remake mafioso after 1 day ago
 i also see them and askin them for a little talk just to taken down my hard work my mafioso skin is also my comfort skin so i don't just don't like anyone to take it but their answer is a no and blocked me after that.
 
 please be aware of this person they might copy yall skin too , and if yall see them that its not me and its not the og skin either.
+
+Note: they're already hide me btw
